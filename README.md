@@ -1,6 +1,5 @@
 <div align="center">
-  <img src="(DUDE OMG)" alt="she's me fr" width="500"/>
+  <img src="https://github.com/fuminoomi/booi-wat-da-helll/blob/main/_%20(1).gif" alt="she's me fr" width="700"/>
 </div>
 
-
-                      how tf does coding work !! >_<
+<p align="center"><a href="https://flipanim.com/anim=jxmywb4r">art i made !!</a></p>
