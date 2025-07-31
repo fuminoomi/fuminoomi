@@ -3,3 +3,7 @@
 </div>
 
 <p align="center"><a href="https://flipanim.com/anim=jxmywb4r">art i made !!</a></p>
+
+<a href="https://github.com/fuminoomi/github-profile-views-counter">
+    <img src=https://komarev.com/ghpvc/?username=fuminoomi&color=brightgreen>
+</a>
