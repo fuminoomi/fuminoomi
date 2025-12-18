@@ -1,7 +1,9 @@
 <div align="center">
   <a href="https://github.com/fuminoomi/github-profile-views-counter">
     <img src="https://komarev.com/ghpvc/?username=fuminoomi&color=brightgreen&style=plastic&label=GET+JINXED!" />
-    <img src="https://github.com/fuminoomi/fuminoomi/blob/main/048eb1cd.gif?raw=true" width="20" />
+  </a>
+  <img src="https://gifcity.carrd.co/assets/images/gallery04/048eb1cd.gif?v=e3c0bc0f"/>
+  <a href="https://github.com/fuminoomi/github-profile-views-counter">
     <img alt="followers" title="Follow me on Github"
          src="https://img.shields.io/github/followers/fuminoomi?color=brightgreen&style=plastic&label=JINXERS!" />
   </a>
