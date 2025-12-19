@@ -29,11 +29,12 @@
   <div align="left">
 <img src="https://github.com/fuminoomi/fuminoomi/blob/main/Untitled_Project-removebg-preview.png?raw=true" width=350 />
   </div>
-  
-<img src=""/>
-<img src=""/>
-<img src=""/>
 
+  <div align="center">
+<img src="https://64.media.tumblr.com/e3a63e41a404be0418d2de6b069fc351/d5cb33cbd20a9ce0-bf/s100x200/c56e46a7b750221685e23deeb463164751868db0.gifv"/>
+<img src="https://64.media.tumblr.com/22a207047fbc43c03e374ea9c1ae585a/8fe5c8fb0e8f5ebb-6a/s250x400/566a1bfef3dbdbc61fd989215fe577de51ba5c7e.pnj" width=101 />
+<img src="https://64.media.tumblr.com/95f96268138fc98b59ff9e5a49547624/f10cd3d54f6a93f2-e2/s100x200/b18803fddbb5b9352b4058132610549d61f7ac3d.gifv"/>
+</div>
 ‎ 
 <img src="https://64.media.tumblr.com/da25953e742d512219fc59c5fb84b9f2/90123053d4043f10-b2/s2048x3072/77766767fc959731fddda6df899a30777bc6f1b7.pnj"/>
 
