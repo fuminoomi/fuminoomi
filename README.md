@@ -13,6 +13,15 @@
          src="https://img.shields.io/github/followers/fuminoomi?color=brightgreen&style=plastic&label=JINXERS!" />
   </a>
 </div>
+
+<img src=""/>
+<img src=""/>
+
+
+
+
+
+
 ‎ 
 <div align="center">
   <img src="https://github.com/fuminoomi/fuminoomi/blob/main/imageedit_1_4673975706.png" alt="she's me fr" width="700"/>
