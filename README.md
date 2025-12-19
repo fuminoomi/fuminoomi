@@ -1,5 +1,7 @@
-<div align="center">
+<img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000/>
+<div align="leftside">
 <img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=10&duration=3000&pause=1000&color=00cfd4&center=true&vCenter=true&width=1000&lines=I+could+be+somebody+AMAZING!+I+could+be+somebody+like+you." />
+
 </div>
 <div align="center">
   <a href="https://github.com/fuminoomi/github-profile-views-counter">
@@ -12,7 +14,6 @@
   </a>
 </div>
 ‎ 
-<img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000/>
 <div align="center">
   <img src="https://github.com/fuminoomi/fuminoomi/blob/main/imageedit_1_4673975706.png" alt="she's me fr" width="700"/>
 </div>
