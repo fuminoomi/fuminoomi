@@ -20,22 +20,35 @@
 </div>
 <img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000> <!--caution border-->
 
-<div align="right">
-<img src="https://github.com/fuminoomi/fuminoomi/blob/main/jinxwithgun-removebg-preview.png?raw=true" width=350 />
-</div>
 
-<img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000> <!--caution border-->
- 
-  <div align="left">
-<img src="https://github.com/fuminoomi/fuminoomi/blob/main/Untitled_Project-removebg-preview.png?raw=true" width=350 />
-  </div>
+<img align="right" img src="https://github.com/fuminoomi/fuminoomi/blob/main/jinxwithgun-removebg-preview.png?raw=true" width=350 /> <!--JINXWITHGUN-->
+${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
+<img src="https://gifcity.carrd.co/assets/images/gallery04/fb1591a0.gif?v=e3c0bc0f"/>
 
-  <div align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> hiii i'm fumi , for info abt me always refer to my links with my strawpage , rentry , pronouns pg !! 
+
+<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> always feel free to int , sometimes im offtab (W2I) but i don't bite (unless we had past beef or sum idk)
+
+<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> cuddling is ok by me as long as i am not with my friends
+
+<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> As everyone else on this game says, do NOT copy my skins !! I didn't think I would have to say this as its basic pt ettiquite!!
+<div align="left">
 <img src="https://64.media.tumblr.com/e3a63e41a404be0418d2de6b069fc351/d5cb33cbd20a9ce0-bf/s100x200/c56e46a7b750221685e23deeb463164751868db0.gifv"/>
 <img src="https://64.media.tumblr.com/22a207047fbc43c03e374ea9c1ae585a/8fe5c8fb0e8f5ebb-6a/s250x400/566a1bfef3dbdbc61fd989215fe577de51ba5c7e.pnj" width=101 />
 <img src="https://64.media.tumblr.com/95f96268138fc98b59ff9e5a49547624/f10cd3d54f6a93f2-e2/s100x200/b18803fddbb5b9352b4058132610549d61f7ac3d.gifv"/>
 </div>
+
+<br clear="right">
+
+  
+
+<img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000> <!--caution border-->
+ 
+  
+<img align="left" img src="https://github.com/fuminoomi/fuminoomi/blob/main/Untitled_Project-removebg-preview.png?raw=true" width=350 /> <!--JINXWITHMOUTHOPEN-->
+
+  <br clear="left">
+
 ‎ 
 <img src="https://64.media.tumblr.com/da25953e742d512219fc59c5fb84b9f2/90123053d4043f10-b2/s2048x3072/77766767fc959731fddda6df899a30777bc6f1b7.pnj"/>
-
 
