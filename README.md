@@ -64,15 +64,18 @@ ppl who use their mental illnesses as an excuse to be a shitty person ⸝⸝
     ${{\color{#3fa6e2}\large{\texttt{THIN ICE}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery269/9c65456a.gif?v=e3c0bc0f"/>
     </summary>
 hazbin hotel fans (AS LONG AS YOU DON'T SUPPORT VALENTINO OR VIVZIE) ⸝⸝
-sanscest enjoyers/roleplayers ⸝⸝
+sanscest enjoyers/roleplayers
 </details> <!--THIN ICE LIST-->
 <details>
   <summary>
     ${{\color{#3fa6e2}\large{\texttt{INT WITH CAUTION}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery04/b0447bc5.gif?v=e3c0bc0f"/>
   </summary>
-under the age of 14 ⸝⸝
+under 16 ⸝⸝
 have bad history with a friend of mine ⸝⸝
-associate with a bad person/someone i dont like
+associate with a bad person/someone i dont like ⸝⸝
+i am not always online , i have my own personal life ⸝⸝
+i have bad memory ⸝⸝
+do not vent to me , i get awkward + sometimes my advice may come out as blunt as i think logically
 </details> <!-- INT WITH CAUTION -->
 
 <div align="center">
