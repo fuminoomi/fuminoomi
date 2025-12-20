@@ -25,7 +25,7 @@
 ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
 <img src="https://gifcity.carrd.co/assets/images/gallery04/fb1591a0.gif?v=e3c0bc0f"/>
 
-<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> hiii i'm fumi , for info abt me always refer to my links with my strawpage , rentry , pronouns pg !! 
+<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> hiii i'm fumi , for info abt me always refer to my links with my strawpage , rentry , and pronouns pg !! 
 
 <img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> always feel free to int , sometimes im offtab (W2I) but i don't bite (unless we had past beef or sum idk)
 
@@ -46,7 +46,35 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
  
   
 <img align="left" img src="https://github.com/fuminoomi/fuminoomi/blob/main/Untitled_Project-removebg-preview.png?raw=true" width=350 /> <!--JINXWITHMOUTHOPEN-->
+<details>
+  <summary>
+    ${{\color{#3fa6e2}\large{\texttt{DNI}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery97/937f1f83.gif?v=e3c0bc0f"/>
+  </summary>
+ proship . darkship . gore/rape enjoyers . every other thing that degrades a human stay away from me ⸝⸝
+racist/transphobe/homophobe/support ICE ⸝⸝
+racist jokes/hurting or sexulizing children jokes/rape jokes ⸝⸝
+PRO AIart ⸝⸝
+problematic fandoms ⸝⸝
+support underlust in any way ⸝⸝
+skin copiers ⸝⸝
+ppl who use their mental illnesses as an excuse to be a shitty person ⸝⸝
+</details> <!--DNI LIST-->
+<details>
+  <summary>
+    ${{\color{#3fa6e2}\large{\texttt{THIN ICE}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery269/9c65456a.gif?v=e3c0bc0f"/>
+    </summary>
+hazbin hotel fans (AS LONG AS YOU DON'T SUPPORT VALENTINO OR VIVZIE) ⸝⸝
+sanscest enjoyers/roleplayers ⸝⸝
+</details> <!--THIN ICE LIST-->
+<details>
+  <summary>
+    ${{\color{#3fa6e2}\large{\texttt{INT WITH CAUTION}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery04/b0447bc5.gif?v=e3c0bc0f"/>
+  </summary>
+under the age of 14 ⸝⸝
+have bad history with a friend of mine ⸝⸝
+associate with a bad person/someone i dont like
 
+</details>
   <br clear="left">
 
 ‎ 
