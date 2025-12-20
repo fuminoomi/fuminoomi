@@ -1,7 +1,7 @@
 <div align="center">
   <a href="https://fuminoomi.straw.page/">strawpage</a>
   <a href="https://rentry.co/pooptown_info">pt rentry</a>
-  <a href="en.pronouns.page/@fuminoomi">pronouns pg</a>
+  <a href="https://en.pronouns.page/@fuminoomi">pronouns pg</a>
   <a href="https://ladybug.atabook.org/">atabook</a>
 </div>
 ‎ 
