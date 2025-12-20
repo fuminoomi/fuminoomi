@@ -32,7 +32,7 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
 <img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> cuddling is ok by me as long as i am not with my friends
 
 <img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> As everyone else on this game says, do NOT copy my skins !! I didn't think I would have to say this as its basic pt ettiquite!!
-<div align="left">
+<div align="center">
 <img src="https://64.media.tumblr.com/e3a63e41a404be0418d2de6b069fc351/d5cb33cbd20a9ce0-bf/s100x200/c56e46a7b750221685e23deeb463164751868db0.gifv"/>
 <img src="https://64.media.tumblr.com/22a207047fbc43c03e374ea9c1ae585a/8fe5c8fb0e8f5ebb-6a/s250x400/566a1bfef3dbdbc61fd989215fe577de51ba5c7e.pnj" width=101 />
 <img src="https://64.media.tumblr.com/95f96268138fc98b59ff9e5a49547624/f10cd3d54f6a93f2-e2/s100x200/b18803fddbb5b9352b4058132610549d61f7ac3d.gifv"/>
@@ -73,8 +73,12 @@ sanscest enjoyers/roleplayers ⸝⸝
 under the age of 14 ⸝⸝
 have bad history with a friend of mine ⸝⸝
 associate with a bad person/someone i dont like
+</details> <!-- INT WITH CAUTION -->
 
-</details>
+<div align="center">
+  <img src="https://y2k.neocities.org/blinkiez/tumblr_static_i0s86edegz4sgckc4os0gg4k.gif"/>
+  <img src="https://nustufff.carrd.co/assets/images/gallery08/c494cb3c.gif?v=5bcf7cb9"/>
+  <img src="https://gifcity.carrd.co/assets/images/gallery18/c6e03148.gif?v=e3c0bc0f"/>
   <br clear="left">
 
 ‎ 
