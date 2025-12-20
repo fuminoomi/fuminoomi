@@ -6,6 +6,7 @@ ${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
   <a href="https://rentry.co/pooptown_info">pt rentry</a>
   <a href="https://en.pronouns.page/@fuminoomi">pronouns pg</a>
   <a href="https://ladybug.atabook.org/">atabook</a>
+  <a href="https://guns.lol/fuminoomi">guns.lol</a>
 </div>
 ‎ 
 <img src="https://64.media.tumblr.com/6a5ce0a969c715499234b7ddd100255c/90123053d4043f10-52/s2048x3072/db975be1a37f858f75865e27cc304935db41113a.pnj"/>
