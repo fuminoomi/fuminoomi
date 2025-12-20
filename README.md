@@ -1,9 +1,16 @@
+<div align="center">
+  <a href="https://fuminoomi.straw.page/">strawpage</a>
+  <a href="https://rentry.co/pooptown_info">pt rentry</a>
+  <a href="en.pronouns.page/@fuminoomi">pronouns pg</a>
+  <a href="https://ladybug.atabook.org/">atabook</a>
+</div>
+‎ 
 <img src="https://64.media.tumblr.com/6a5ce0a969c715499234b7ddd100255c/90123053d4043f10-52/s2048x3072/db975be1a37f858f75865e27cc304935db41113a.pnj"/>
 
-<div align="leftside">
-<img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=10&duration=3000&pause=1000&color=00cfd4&center=true&vCenter=true&width=1000&lines=I+could+be+somebody+AMAZING!+I+could+be+somebody+like+you." />
-
+<div align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=20&duration=3000&pause=1000&color=00cfd4&center=true&vCenter=true&width=1000&lines=BAD+LUCK+I+AM,+SHUNNED+BY+THE+WORLD!" />
 </div>
+
 <div align="center">
   <a href="https://github.com/fuminoomi/github-profile-views-counter">
     <img src="https://komarev.com/ghpvc/?username=fuminoomi&color=brightgreen&style=plastic&label=GET+JINXED!" /> <!-- profile counter -->
@@ -25,7 +32,7 @@
 ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
 <img src="https://gifcity.carrd.co/assets/images/gallery04/fb1591a0.gif?v=e3c0bc0f"/>
 
-<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> hiii i'm fumi , for info abt me always refer to my links with my strawpage , rentry , and pronouns pg !! 
+<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> hiii i'm fumi , for info abt me always refer to my <ins>links</ins> with my strawpage , rentry , and pronouns pg !! sign my ata if u want (^_^)
 
 <img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> always feel free to int , sometimes im offtab (W2I) but i don't bite (unless we had past beef or sum idk)
 
@@ -86,4 +93,3 @@ do not vent to me , i get awkward + sometimes my advice may come out as blunt as
 
 ‎ 
 <img src="https://64.media.tumblr.com/da25953e742d512219fc59c5fb84b9f2/90123053d4043f10-b2/s2048x3072/77766767fc959731fddda6df899a30777bc6f1b7.pnj"/>
-
