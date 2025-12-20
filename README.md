@@ -1,3 +1,6 @@
+${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
+<img src="https://gifs.crd.co/assets/images/gallery21/33f7fc0a.gif?v=ef433a6f"/>
+
 <div align="center">
   <a href="https://fuminoomi.straw.page/">strawpage</a>
   <a href="https://rentry.co/pooptown_info">pt rentry</a>
@@ -23,8 +26,9 @@
 </div>
 
 <div align="center">
-  <img src="https://github.com/fuminoomi/fuminoomi/blob/main/imageedit_1_4673975706.png" alt="she's me fr" width="700"/>
+  <img src="https://github.com/fuminoomi/fuminoomi/blob/main/imageedit_1_4673975706.png" alt="she's me fr" width="700"/> <!--JINX AND EKKO PIC-->
 </div>
+
 <img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000> <!--caution border-->
 
 
@@ -47,10 +51,7 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
 
 <br clear="right">
 
-  
-
-<img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000> <!--caution border-->
- 
+ <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=e3c0bc0f" height=3000 width=3000/>
   
 <img align="left" img src="https://github.com/fuminoomi/fuminoomi/blob/main/Untitled_Project-removebg-preview.png?raw=true" width=350 /> <!--JINXWITHMOUTHOPEN-->
 <details>
@@ -91,5 +92,6 @@ do not vent to me , i get awkward + sometimes my advice may come out as blunt as
   <img src="https://gifcity.carrd.co/assets/images/gallery18/c6e03148.gif?v=e3c0bc0f"/>
   <br clear="left">
 
+  <img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000> <!--caution border-->
 ‎ 
 <img src="https://64.media.tumblr.com/da25953e742d512219fc59c5fb84b9f2/90123053d4043f10-b2/s2048x3072/77766767fc959731fddda6df899a30777bc6f1b7.pnj"/>
