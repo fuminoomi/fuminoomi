@@ -60,13 +60,13 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
     ${{\color{#3fa6e2}\large{\texttt{DNI}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery97/937f1f83.gif?v=e3c0bc0f"/>
   </summary>
  proship . darkship . gore/rape enjoyers . every other thing that degrades a human stay away from me ⸝⸝
-racist/transphobe/homophobe/support ICE ⸝⸝
+racist/transphobe/homophobe/support ICE, israel, trump ⸝⸝
 racist jokes/hurting or sexulizing children jokes/rape jokes ⸝⸝
 PRO AIart ⸝⸝
 problematic fandoms ⸝⸝
 support underlust in any way ⸝⸝
 skin copiers ⸝⸝
-ppl who use their mental illnesses as an excuse to be a shitty person ⸝⸝
+ppl who use their mental illnesses as an excuse to be a shitty person
 </details> <!--DNI LIST-->
 <details>
   <summary>
