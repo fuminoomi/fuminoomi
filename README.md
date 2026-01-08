@@ -1,6 +1,11 @@
 ${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
 <img src="https://gifs.crd.co/assets/images/gallery21/33f7fc0a.gif?v=ef433a6f"/>
 
+<p align="center"> <!-- spotify player -->
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=67e600&bar_color_cover=false">
+  </a>
+</p>
 
 <div align="center">
   <a href="https://fuminoomi.straw.page/">strawpage</a>
@@ -97,8 +102,4 @@ do not vent to me , i get awkward + sometimes my advice may come out as blunt as
   <img src="https://64.media.tumblr.com/2e1f69cc40b1193b54d11a077fb2c660/45f62420679f9546-58/s400x600/eea1961013f50a1116ecaa0f707243326cb05d71.gifv" height=20 width=1000> <!--caution border-->
 ‎ 
 <img src="https://64.media.tumblr.com/da25953e742d512219fc59c5fb84b9f2/90123053d4043f10-b2/s2048x3072/77766767fc959731fddda6df899a30777bc6f1b7.pnj"/>
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=15e70d">
-  </a>
-</p>
+
