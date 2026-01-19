@@ -69,8 +69,10 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
   racist/homophobic/transphobic ⸝⸝
   joke abt racism/rape/ect. ⸝⸝
   glorify weird shit (ex: gore) ⸝⸝
+  hate on innocent stuff (ex: furries) ⸝⸝
   support underlust in any way (skins, try to defend the au, etc.) ⸝⸝
-  literally just dont be a douche/weirdo ⸝⸝
+  support the big t(rump) ⸝⸝
+  just! dont! be! weird!
 </details> <!--DNI LIST-->
 <details>
   <summary>
