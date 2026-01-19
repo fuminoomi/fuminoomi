@@ -67,7 +67,7 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
   </summary>
  proship + darkship + other related labels ⸝⸝
   racist/homophobic/transphobic ⸝⸝
-  joke abt racism/rape/ect. ⸝⸝
+  rape/racist jokes ⸝⸝
   glorify weird shit (ex: gore) ⸝⸝
   hate on innocent stuff (ex: furries) ⸝⸝
   support underlust in any way (skins, try to defend the au, etc.) ⸝⸝
