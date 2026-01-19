@@ -65,7 +65,7 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
   <summary>
     ${{\color{#3fa6e2}\large{\texttt{DNI}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery97/937f1f83.gif?v=e3c0bc0f"/>
   </summary>
- proship + darkship + other related labels ⸝⸝
+ proship + darkship + ect ⸝⸝
   racist/homophobic/transphobic ⸝⸝
   rape/racist jokes ⸝⸝
   glorify weird shit (ex: gore) ⸝⸝
