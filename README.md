@@ -66,7 +66,7 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
     ${{\color{#3fa6e2}\large{\texttt{DNI}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery97/937f1f83.gif?v=e3c0bc0f"/>
   </summary>
  proship . darkship . gore/rape enjoyers . every other thing that degrades a human stay away from me ⸝⸝
-racist/transphobe/homophobe/support ICE, israel, trump ⸝⸝
+racist/transphobe/homophobe/support anything TRUMP RELATTEDD i hate that orange man + isntreal ⸝⸝
 racist jokes/hurting or sexulizing children jokes/rape jokes ⸝⸝
 PRO AIart ⸝⸝
 problematic fandoms ⸝⸝
