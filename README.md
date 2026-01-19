@@ -65,14 +65,12 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
   <summary>
     ${{\color{#3fa6e2}\large{\texttt{DNI}}}}$ <img src="https://gifcity.carrd.co/assets/images/gallery97/937f1f83.gif?v=e3c0bc0f"/>
   </summary>
- proship . darkship . gore/rape enjoyers . every other thing that degrades a human stay away from me ⸝⸝
-racist/transphobe/homophobe/support anything TRUMP RELATTEDD i hate that orange man + isntreal ⸝⸝
-racist jokes/hurting or sexulizing children jokes/rape jokes ⸝⸝
-PRO AIart ⸝⸝
-problematic fandoms ⸝⸝
-support underlust in any way ⸝⸝
-skin copiers ⸝⸝
-ppl who use their mental illnesses as an excuse to be a shitty person
+ proship + darkship + other related labels ⸝⸝
+  racist/homophobic/transphobic ⸝⸝
+  joke abt racism/rape/ect. ⸝⸝
+  glorify weird shit (ex: gore) ⸝⸝
+  support underlust in any way (skins, try to defend the au, etc.) ⸝⸝
+  literally just dont be a douche/weirdo ⸝⸝
 </details> <!--DNI LIST-->
 <details>
   <summary>
