@@ -49,7 +49,7 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
 
 <img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> cuddling is ok by me as long as i am not with my friends
 
-<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> As everyone else on this game says, do NOT copy my skins !! I didn't think I would have to say this as its basic pt ettiquite!!
+<img src="https://gifcity.carrd.co/assets/images/gallery270/4201aaba.gif?v=e3c0bc0f"/> As everyone else on this game says, do NOT copy my skins !! I didn't think I would have to say this as its basic pt ettiquite!! (also dont take inspo ;-;)
 <div align="center">
 <img src="https://64.media.tumblr.com/e3a63e41a404be0418d2de6b069fc351/d5cb33cbd20a9ce0-bf/s100x200/c56e46a7b750221685e23deeb463164751868db0.gifv"/>
 <img src="https://64.media.tumblr.com/22a207047fbc43c03e374ea9c1ae585a/8fe5c8fb0e8f5ebb-6a/s250x400/566a1bfef3dbdbc61fd989215fe577de51ba5c7e.pnj" width=101 />
