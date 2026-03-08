@@ -1,5 +1,5 @@
 ${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
-<img src="https://gifs.crd.co/assets/images/gallery21/33f7fc0a.gif?v=ef433a6f"/>
+<img src="https://64.media.tumblr.com/18b5048213e4a9cb2b80bfadb7766974/a34d657383d6ce06-05/s75x75_c1/3d67fdc605e0f4e3fbdec01b500c9a29b7a47e5f.gifv"/>
 
 <p align="center"> <!-- spotify player -->
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&redirect=true">
