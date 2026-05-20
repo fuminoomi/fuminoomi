@@ -58,7 +58,7 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
 
 <br clear="right">
 
- <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=e3c0bc0f" height=3000 width=3000/>
+ <img src="https://gifcity.carrd.co/assets/images/gallery48/abd714f5.gif?v=e3c0bc0f" height=100 width=3000/>
   
 <img align="left" img src="https://github.com/fuminoomi/fuminoomi/blob/main/Untitled_Project-removebg-preview.png?raw=true" width=350 /> <!--JINXWITHMOUTHOPEN-->
 <details>
