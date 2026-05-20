@@ -69,10 +69,8 @@ ${{\color{#3fa6e2}\Large{\textsf{ABT ME}}}}$
   racist/homophobic/transphobic ⸝⸝
   rape/racist jokes ⸝⸝
   glorify weird shit (ex: gore) ⸝⸝
-  hate on innocent stuff (ex: furries) ⸝⸝
   support underlust in any way (skins, try to defend the au, etc.) ⸝⸝
-  support the big t(rump) ⸝⸝
-  just! dont! be! weird!
+  MAGA
 </details> <!--DNI LIST-->
 <details>
   <summary>
@@ -88,9 +86,9 @@ sanscest enjoyers/roleplayers
 under 16 ⸝⸝
 have bad history with a friend of mine ⸝⸝
 associate with a bad person/someone i dont like ⸝⸝
-i am not always online , i have my own personal life ⸝⸝
+i am not always online ⸝⸝
 i have bad memory ⸝⸝
-do not vent to me , i get awkward + sometimes my advice may come out as blunt as i think logically
+do not vent to me , i get awkward + i dont know how to comfort ;-;
 </details> <!-- INT WITH CAUTION -->
 
 <div align="center">
