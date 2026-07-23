@@ -1,9 +1,10 @@
 ${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
 <img src="https://64.media.tumblr.com/18b5048213e4a9cb2b80bfadb7766974/a34d657383d6ce06-05/s75x75_c1/3d67fdc605e0f4e3fbdec01b500c9a29b7a47e5f.gifv"/>
 
-<p align="center"> <!-- spotify player -->
+<!--SPOTIFY PLAYER-->
+<p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=67e600&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=dlc96uy585h8n3azov2a3nb67&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=30ea2a&bar_color_cover=false">
   </a>
 </p>
 
@@ -18,8 +19,9 @@ ${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
 ‎ 
 <img src="https://64.media.tumblr.com/6a5ce0a969c715499234b7ddd100255c/90123053d4043f10-52/s2048x3072/db975be1a37f858f75865e27cc304935db41113a.pnj"/>
 
+<!-- BAD LUCK I AM, SHUNNED BY THE WORLD!-->
 <div align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Press+Start+2P&size=20&duration=3000&pause=1000&color=00cfd4&center=true&vCenter=true&width=1000&lines=BAD+LUCK+I+AM,+SHUNNED+BY+THE+WORLD!" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Road+Rage&size=70&duration=1900&pause=1000&color=3FA6E2&center=true&vCenter=true&width=500&height=100&lines=LICK+MY+HEART%2C;IT+WILL+POISON+YOU.;BAD+LUCK+I+AM%2C;SHUNNED+BY+THE+WORLD!" alt="Typing SVG" /></a>
 </div>
 
 <div align="center">
