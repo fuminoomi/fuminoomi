@@ -16,7 +16,14 @@ ${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
   <a href="https://guns.lol/fuminoomi">guns.lol</a> ⟡
   <a href="https://listography.com/fuminoomi">listography</a>
 </div>
-‎ 
+‎
+<!-- PONYTOWN AWARDS-->
+<p align="center">
+  THE Jinx of Ponytown <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> <br>
+  THE Sans YUME (in general sans aus cuz im big and greedy) <a href="https://github.com/ponytownyumeshippers">ponytownyumeshippers</a> <br>
+  THE Mr.Krabs (money money money) of Ponytown <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> <br>
+</p>
+
 <img src="https://64.media.tumblr.com/6a5ce0a969c715499234b7ddd100255c/90123053d4043f10-52/s2048x3072/db975be1a37f858f75865e27cc304935db41113a.pnj"/>
 
 <!-- BAD LUCK I AM, SHUNNED BY THE WORLD!-->
