@@ -24,7 +24,7 @@ ${{\color{limegreen}\Large{\textsf{best viewed on dark mode !!}}}}$
   ⠀<a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a>
   ⠀<a href="https://github.com/pt-fashion">pt-fashion</a>
   ‎ ‎ <a href="https://github.com/title-town">title-town</a>
-    ‎ ‎ <a href="https://github.com/pt-medals">pt-medals</a>
+    ‎ ‎ <a href="https://github.com/pt-medals2">pt-medals2</a>
       ‎ ‎ <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a>
         ‎ ‎ <a href="https://github.com/ponychievements">ponychievements</a>
           ‎ ‎ <a href="https://github.com/fans-town">fans-town</a>
